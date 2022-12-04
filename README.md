@@ -1,6 +1,6 @@
 Mirror from [https://www.reddit.com/r/pcgaming/comments/zb5783/guide\_changing\_discords\_font/](https://www.reddit.com/r/pcgaming/comments/zb5783/guide_changing_discords_font/) while I await reinstatement from the automod.
 
-J/K: Reddit sucks, https://imgur.com/a/vGuZUNs. This post will now live here. You can message me for help at u/TGtheImmortal on Reddit or here.
+J/K: Reddit sucks, https://imgur.com/a/vGuZUNs. This post will now live here and [https://www.reddit.com/r/redditModPowerTrip/comments/zcduf9/guide_changing_discords_fonts/?sort=new](https://www.reddit.com/r/redditModPowerTrip/comments/zcduf9/guide_changing_discords_fonts/?sort=new). You can message me for help at u/TGtheImmortal on Reddit or here.
 
 Note: This is more or less a cross-post for visibility since discordapp mods were removing my posts. I've included some Info on BetterDiscord here as well, since that is banned in that subreddit.
 
